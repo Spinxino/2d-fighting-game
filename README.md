@@ -1,1 +1,4 @@
-![ezgif-2-8d39fde7e2](https://user-images.githubusercontent.com/32494798/183344241-7753b8cd-6be5-4c80-b4b8-e7931ae4fc98.gif)
+
+
+https://github.com/Spinxino/2d-fighting-game/assets/32494798/304246b4-41b7-42a4-9687-998067a4726f
+
